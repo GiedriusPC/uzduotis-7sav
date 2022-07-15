@@ -1,0 +1,1 @@
+Praktinė užduotis 7sav.
